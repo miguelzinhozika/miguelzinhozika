@@ -1,6 +1,6 @@
 ## oi miguel🤤🤤🤤
 
-- 🔭 3º anus do Ensino Médio
+- 🔭 3º ano do Ensino Médio
 - 🌱 estou me formando na escola, e tenho certo grau de conhecimento em HTML, java script
 - 📫 Me contate por:
 - ✉️ miguel.zavadski@gmail.com
